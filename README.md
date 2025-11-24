@@ -1,0 +1,2 @@
+# latihangit1
+belajar
